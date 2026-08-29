@@ -7,7 +7,7 @@
   <p>chronically offline. no dni. hired and employed x2. i'm a friendly guy that doesn't take the internet seriously, and neither should you. have fun forever =]</p>
   <p><i>no, i'm not tcc. LOL</i></p>
   <br></br>
-    <img alt="kmfdm" src="https://files.catbox.moe/tp1dze.gif"/>
+    <img alt="kmfdm" src="https://files.catbox.moe/a2okyl.gif"/>
     <br></br>
     <p>wanna yell at me? sure. i live here ... V</p>
     <img alt="my home" src="https://files.catbox.moe/uusesk.jpg"/>
