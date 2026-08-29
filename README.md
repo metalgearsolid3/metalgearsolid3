@@ -1,4 +1,4 @@
-![KMFDM]([https://github.com/adam-p/markdown-here/raw/master/src/common/images/icon48.png](https://file.garden/afuD6t-9oGJf2HzD/gh1.GIF) "KMFDM")
+![]([https://github.com/adam-p/markdown-here/raw/master/src/common/images/icon48.png](https://file.garden/afuD6t-9oGJf2HzD/gh1.GIF) "KMFDM")
 
 <!--
 **metalgearsolid3/metalgearsolid3** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
