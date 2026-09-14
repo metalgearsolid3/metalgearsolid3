@@ -12,5 +12,9 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=5jph4vy6epfxo4utftye2mbbb&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=d02f2f)](https://github.com/kittinan/spotify-github-profile)
 <br></br>
 <br></br>
+<br></br>
+<br></br>
+<br></br>
+<br></br>
     <p>wanna yell at me? sure. i live here ... V</p>
     <img alt="my home" src="https://files.catbox.moe/uusesk.jpg"/>
