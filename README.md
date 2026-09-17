@@ -6,7 +6,7 @@
 
   <p><h3></h3></p> AVERAGE INTERNET USER. HE, GAY MALE. TAKEN 11.15.20.</h3></p>
   i don't go on here often. when i do go on, i like watching and wasting time. you can talk to me, i don't really care. dm me and you'll get a faster response.</p>
-  i like <b>games</b> (half-life, mgs, doom, quake, halo), <b>movies/tv</b> (clerks, twin peaks (really, any david lynch stuff), nirvanna the band the show, futurama, x-files, johnny got his gun, efny/la, taxi driver, dog day afternoon) and <b>music</b> (KMFDM, HIM, linkin park, NIN, electric hellfire club, front 242, contagion, funker vogt, PIG, aphex twin, smashing pumpkins, and one, rammstein). sources say i'm an introject. i say i'm god's favorite soldier. i'm secretly in love with trent reznor.</p>
+  i like <b>games</b> (half-life, mgs, doom, quake, halo), <b>movies/tv</b> (clerks, twin peaks (really, any david lynch stuff), nirvanna the band the show, futurama, x-files, johnny got his gun, efny/la, taxi driver, dog day afternoon) and <b>music</b> (KMFDM, HIM, linkin park, NIN, electric hellfire club, front 242, contagion, funker vogt, PIG, aphex twin, smashing pumpkins, rammstein). sources say i'm an introject. i say i'm god's favorite soldier. i'm secretly in love with trent reznor.</p>
     <p><b>chronically offline. no dni.</b> hired and employed x2. i'm a friendly guy that doesn't take the internet seriously, and neither should you. have fun forever =]</p>
     <i>no, i'm not tcc. LOL</i><br/>
   <br>
